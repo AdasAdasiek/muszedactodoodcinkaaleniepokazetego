@@ -1,1 +1,0 @@
-# muszedactodoodcinkaaleniepokazetego
